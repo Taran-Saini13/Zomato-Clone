@@ -158,7 +158,7 @@ Submit a pull request
 
 If you liked this project or want to collaborate, feel free to connect:
 
-GitHub: Tarn-Saini13
+GitHub: Taran-Saini13
 
 Email: tarnsaini9713@gmail.com
 
