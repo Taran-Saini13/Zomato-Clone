@@ -158,6 +158,8 @@ Submit a pull request
 
 If you liked this project or want to collaborate, feel free to connect:
 
-GitHub: (Add your username link)
+GitHub: Tarn-Saini13
 
-LinkedIn: (Add your profile link)
+Email: tarnsaini9713@gmail.com
+
+
